@@ -3,3 +3,5 @@ We are a cult that is a group of rubber ducks that lurk the internet and cause c
 To Join the Enlightened Order of the Luminous Rubber Duck Cult simply change your profile pictures to a rubber duck wearing a fedora and tell them to
 join the Enlightened Order of the Luminous Rubber Duck Cult and also say quack. 
 Welcome to the Enlightened Order of the Luminous Rubber Duck Cult!
+
+Also check out my stuff on https://github.com/jyoeymama/my-cult-the-rubber-ducks, Thank you all!
