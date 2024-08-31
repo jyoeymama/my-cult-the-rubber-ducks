@@ -4,4 +4,6 @@ To Join the Enlightened Order of the Luminous Rubber Duck Cult simply change you
 join the Enlightened Order of the Luminous Rubber Duck Cult and also say quack. 
 Welcome to the Enlightened Order of the Luminous Rubber Duck Cult!
 
+Initiation also would like that you send the link to my website in your comments to help new people join!
+
 Also check out my stuff on https://github.com/jyoeymama/my-cult-the-rubber-ducks, Thank you all!
